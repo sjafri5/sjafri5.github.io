@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Book Review: Ideas & Integrities 
+title: Book Review- Ideas & Integrities 
 cover: cover.jpg
 date:   2015-10-18 12:00:00
 categories: posts

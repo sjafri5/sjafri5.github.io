@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Movie Review: Blue is the Warmest Color
+title: Movie Review - Blue is the Warmest Color
 cover: cover.jpg
 date:   2015-10-05 12:00:00
 categories: posts
