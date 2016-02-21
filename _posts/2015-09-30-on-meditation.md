@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Djembe Djembe Djembe 
+title: On Meditation
 cover: cover.jpg
 date:   2015-10-05 12:00:00
 categories: posts
