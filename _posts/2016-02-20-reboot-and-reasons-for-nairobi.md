@@ -1,6 +1,6 @@
 ---
 layout: post
-title: On working for a startup
+title: Reboot and Reasons for Nairobi
 cover: cover.jpg
 date:   2016-02-20 12:00:00
 categories: posts
