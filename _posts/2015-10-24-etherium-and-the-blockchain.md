@@ -2,7 +2,7 @@
 layout: post
 title: Etherium and the Blockchain 
 cover: cover.jpg
-date:   2016-02-21 12:00:00
+date:   2015-10-24 12:00:00
 categories: posts
 ---
 
