@@ -6,6 +6,7 @@ date:   2016-02-20 12:00:00
 categories: posts
 ---
 
+## 
 
 I am leaving for Nairobi in 2 weeks. It's all quite surreal. I started writing in this blog again with the hopes of creating a habit. I don't think it will be as technical as my first attempt happened to be. This is not to say that I will no longer discuss technical topics. I just won't go into granular detail on how, say, scoping works in Angular. They say code doesn't age well. The same can be said about blog posts discussing how scoping works in Angular.
 
