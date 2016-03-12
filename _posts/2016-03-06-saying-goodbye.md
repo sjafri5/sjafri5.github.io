@@ -6,7 +6,7 @@ date:   2016-03-06 12:00:00
 categories: posts
 ---
 
-## TEST
+## --- 
 
 I threw a goodbye party for my departure to Africa on Friday. There is this element of fear that I have always associated with hosting a party. A gnawing anxiety floated above me like a heavy cloud as a I prepared to play host. But, I felt it was something I wanted to do. I wanted to bring together the people in my life for a night and enjoy their company all at once. 
 
