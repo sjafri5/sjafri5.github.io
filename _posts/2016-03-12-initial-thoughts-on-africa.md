@@ -19,7 +19,7 @@ Nairobi as a whole is a peculiar story. The infrastructure is not where it needs
 
 I have never witnessed post-colonialism first hand before. I understood the term, I have read articles on it. But, truly, there is a glass wall between you and an idea until you stand face to face with it. There is something sublime about being in a country where the foreigners all seem to be doing quite well for themselves and the local people have no opportunities.
 
-The city is young with 70% of the population being under 25%. This gives Nairobi a vibrancy that I like to imagine New York City must've had in the early 1900's. There is a lot of foreign invesment in Nairobi and the large foreign population is a reflection of that.
+The city is young with 70% of the population being under 25. This gives Nairobi a vibrancy that I like to imagine New York City must've had in the early 1900's. There is a lot of foreign invesment in Nairobi and the large foreign population is a reflection of that.
 
 The locals I have met here are fascinating. It is immediately recognizable that a sense of generousity is innate in the Kenyan people. One can only imagine how that was taken advantage of by the British. There is also a strong entrepeneurial sense throughout the city. Everyone seems to have a side hustle. These are only my initial outlooks, of course. I would like to spend more time with the people of this country and soak in their culture. One of my coworkers is a Canadian who met her lover here. Through them, I suspect I will get to see a more authentic side of Nairobi. 
 
