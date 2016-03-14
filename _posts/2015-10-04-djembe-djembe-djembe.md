@@ -8,7 +8,7 @@ categories: posts
 
 ## --- 
 
-I'm sitting in my bed listening to some music that Megan put on. It's got this nice vibe to it with a lot of songs that have beats that roll off the heart. I find myself not just listening but also playing along with my mouth. Everything has a beat to it. All the time I find myself keeping a rythm. It's all because of this djembe.
+I'm sitting in my bed listening to some music that Megan put on. It's got this lovely vibe to it. These days, I find myself not just listening to music but also playing along with my mouth. Everything has a beat to it. All the time I find myself keeping a rythm. It is all because of this djembe.
 
 I've been wanting to buy a djembe for a while now. I've had this deep urge to play music my whole life. It felt more like regret, actually. I wished my parents had forced me to play when I was younger. Because they hadn't done their duty, I was left with the gaping hole in my development. Who else could be held responsible? 
 
