@@ -1,12 +1,12 @@
 ---
 layout: post
-title: This Morning
+title: Initial Thoughts on Africa
 cover: cover.jpg
-date:   2016-03-15 12:00:00
+date:   2016-03-12 12:00:00
 categories: posts
 ---
 
-## --- 
+## --
 
 It was 10AM, I looking for a place to smoke my joint. The cannabis here is different. Brownish stems lead to a collection of 4-5 dry buds that still hold on to their seeds. It's clearly pulled straight from the Earth. This is the type of weed that I encounter most often when travelling and it matches so perfectly. The calm, soft high is a perfect lens through which to look around at this new world around me. So anyways, I was looking for a place to smoke. The balcony that overlooked the red clay rooftops was occupied. Pauline was having a smoke and singing just audibly. I wandered downstairs to see if I could go into the backyard and smoke in the patio. Nope. The startup was running a meeting with business looking people. I walked out of the front door and that also seemed crowded with the security guy chatting up with someone. I crossed the drive way into the concrete enclosure. Here there were several lines of rope strung from the side of the garage to the slab fence with. damp clothes hung in the sun.
 
