@@ -1,0 +1,13 @@
+If palindrome was instead palindromemordnilap, it would be the Guatama Buddha of the word kingdom. What do i want to talk about. maybe i should do a stream of consciousness in order to get the words flowwing. That was what was so important about the 50days thing. Its crazy how much that challenge influenced me. I should try doing another one of those challenges. it creates a habit. But more than that it creates an open door. That door leads to a deeper exploration of that genre. I can't explain how much beginning to write has influenced the creation of new ideas for me. It has helped me artiuculat ideas in a way that is similar to capturing a picture of a special moment. Instead of a moment it is an idea, a vision. It immortalizes the picture. I wonder how this essay is going to end. When i write about something it allows for me to paint it with as much detail as i want. I begin to experiment with sentence structure and how that influences the thoughts that were meant to be conveyed. It's crazy.
+There are several ideas i have floating on around in my head. There is the one where i explain the concept of El nino. I backspaced again I apologize for that. take that last sentence as a means to ammend the wrong and creat ba.ance. anyways, I wanted to write about el nino explaining it to my reader and tying it in with the current unusual warm weather. Maybe that can be a short explanation.
+
+I also wanted to a description of the foods that I have currently tried. That one would be a fun one to recreate. I also wanted to do one where I create a scenario with Saad and Sayam working in the same hospital. The scene would be at lunch. 
+
+On Food:
+
+One of the funnest things about travelling is the tast in cuisine. This
+
+
+Bina has a baby. She's not alloed to drink wine apparently because of the relationship between mother and baby. This relationship is still mysterious to me. Well, it will always be mysterious to me but I haven't even been around it so I am just learning of these tendrils between mother and son. I drink a lot of wine these days. It's freeing in the evening. Just a glass or few. No one in the house was really as avid a drinker, or a smoker. I was a bit surprised given that I was living with a bunch of Germans and some French. You would imagine that beer and wine would be flowing from the spouts. But anyways Bina would take Gigi's glass from her and rink it hurriedly. She drank it like it was water on a sweltering day. It was just a few sips though. It was just to taste it again. 
+
+
