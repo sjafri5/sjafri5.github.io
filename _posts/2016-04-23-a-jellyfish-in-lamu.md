@@ -1,7 +1,7 @@
 ---
 layout: post
 title: A Jellyfish in Lamu
-cover: cover.jpg
+cover: sailboat.jpeg
 date:   2016-04-23 12:00:00
 categories: posts
 ---
