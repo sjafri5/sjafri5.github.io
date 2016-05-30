@@ -1,14 +1,14 @@
 ---
 layout: post
 title: A Jellyfish in Lamu
-cover: images/cover.jpg
+cover: cover.jpg
 date: 2016-04-23 12:00:00
 categories: posts
 ---
 
 ## --- 
 
-dddfyxxI leaned against the back of the sailboat so that the only thing in my view was the curving sail and an infinite sky. It was just after sunset so the sky was still glowing a soft purple from all the light absorbed through the day. The sail swelled fully as the wind pushed the wooden Doa along. A worn french flag hung against the mast, ripping in the wind. I sank into the pillow and reflected on the symbolism. The flag's edges were frayed and snaked along the sky, only adding to the romanticism. The scars served as further reminder of all its voyages and of all its conquests. I would like to age like that, I thought. 
+I leaned against the back of the sailboat so that the only thing in my view was the curving sail and an infinite sky. It was just after sunset so the sky was still glowing a soft purple from all the light absorbed through the day. The sail swelled fully as the wind pushed the wooden Doa along. A worn french flag hung against the mast, ripping in the wind. I sank into the pillow and reflected on the symbolism. The flag's edges were frayed and snaked along the sky, only adding to the romanticism. The scars served as further reminder of all its voyages and of all its conquests. I would like to age like that, I thought. 
 
 I had been swimming in the Indian Ocean. It was nearly enclosed by the mangrove islands that encircle Lamu. Still, all the strength of the ocean was there. Whenever I step into the ocean I am immediately faced with the vastness of nature. It is terrifying; what consoles me is an idea I heard somewhere of always making sure to paying respect to the ocean. So I stepped into the ocean and gave myself to her as a child does to his elder. The water was warm. The sun on the coast is unrelenting throughout the day. The water was the warmest I had ever felt from an ocean. It was so inviting to be in. I was swimming with Gigi. We were going to race back to the shore to see who would get to our base of clothes first. I swam back in an effort to create a longer race.  And then all of a sudden there was this feeling. The pain of gelatinous needles pierced across my armpit one at a time but in quick succession. Getting stung by a jellyfish is such an uncomfortable experience. The pain is clear, but it's almost as if there is nothing to attribute it to. It's almost as if it isn't there. In the fluidness of the ocean, in the thickness of the seawater, how do you escape the creature? My immideate reaction was to rub that part of my skin in effort to get whatever it was off of me. But this just spread the problem. I had to escape the sea. I stumbled out of the water, in an effort to get the breeze to address my wound. 
 
