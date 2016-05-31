@@ -1,7 +1,7 @@
 ---
 layout: post
 title: raspberry cake 
-cover: cover.jpg
+cover: raspberry.png
 date:   2016-04-19 12:00:00
 categories: posts
 ---
