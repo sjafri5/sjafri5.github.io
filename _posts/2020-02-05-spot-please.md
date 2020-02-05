@@ -1,14 +1,15 @@
 ---
 layout: post
-title: Spot Please 
+title: Spot Please
 cover: cover.jpg
-date:   2020-02-05 12:00:00
+date: 2020-02-05 12:00:00
 categories: posts
 ---
 
-——————
+——
 
 Spot please.
+
 Please spot.
 Please a spot.
 Please, don’t stop. And please don’t cease.
@@ -40,4 +41,4 @@ Please a spot.
 Spot please.
 Please spot.
 
-——————
+——
