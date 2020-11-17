@@ -8,11 +8,10 @@ categories: posts
 
 ——
 
-Spot please.
-
-Please spot.
-Please a spot.
-Please, don’t stop. And please don’t cease.
+Spot please.  
+Please spot.  
+Please a spot.   
+Please, don’t stop. And please don’t cease.   
 No running, please. Please just walk,
 And please don’t splash.
 Please just watch this soppy, sappy, sobbing plot.
