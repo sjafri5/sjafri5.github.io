@@ -16,7 +16,7 @@ No running, please. Please just walk,
 And please don’t splash.
 Please just watch this soppy, sappy, sobbing plot.
 The perks of being a potted plant in a spotted pot.
-Show your cards, you’ll split the pot.
+Show your cards and you’ll split the pot.
 The Jack of Hearts is all you’ve got.
 The Jack of Hearts is all that’s left.
 Seize the thief! The thief was caught.
@@ -25,7 +25,7 @@ The thief was poor! The thief is dead.
 Slap your smile with a sloppy tongue.
 Sticky spit, and sticky fun.
 Sticky spit on your sweating skin.
-Sticky spit on your sweaty clit.
+Sticky spit on your salty skin.
 Sail the seas under a sweltering sun,
 Sail the seas under squawking gulls.
 Scout some spots on the sandy shore,
