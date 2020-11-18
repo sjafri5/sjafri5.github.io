@@ -18,7 +18,8 @@ html, body {
 body {
   color: #333;
   background-color: #fafbfc;
-  font-family: 'Raleway', Arial, sans-serif;
+  font-family: 'Helvetica', sans-serif;
+  /* font-family: 'Raleway', Arial, sans-serif; */
   font-weight: 400;
   font-size: 0.85em;
   overflow: hidden;
@@ -169,7 +170,8 @@ a:hover {
 
 .post p {
   font-family: 'Source Sans Pro', Arial, sans-serif;
-  font-size: 1.1em;
+  font-size: 1.3em;
+  line-height: 1.5;
   margin-bottom: 1.45em;
   text-align: justify;
 }
