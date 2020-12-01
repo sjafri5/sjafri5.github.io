@@ -6,7 +6,7 @@ date:   2020-10-21 12:00:00
 categories: posts
 ---
 
-## --
+——
 
 I saw two homes today. Both of them are occupied by many people and a variety of nationalities. Both of them are relatively affordable. They both offer interesting experiences and now I am struggling to determine which one should be mine.
 The first home has a name. They call their place Palabando. I am not sure what it means but the act of naming your home tells me a lot of the culture. It tells me that there is a connection amongst the people living there.
