@@ -1,7 +1,7 @@
 ---
 layout: post
 title: What's So Special?
-cover: peacock.jpg
+cover: sand.jpg
 date:   2020-12-08 12:00:00
 categories: posts
 ---
