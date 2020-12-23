@@ -1,13 +1,3 @@
----
-layout: post
-title: Meeting Sam
-cover: cover.jpg
-date:   2020-12-14 12:00:00
-categories: posts
----
-
-——
-
 I met a man named Sam. He was a jubilant man that had moved to Mexico City just before the pandemic. We met over the internet, in a Facebook group dedicated to expats in Mexico. He was interested in collaborating on a weekly open mic. Somethiing fun and low pressure just to get the ball rolling with English comedy here.
 
 Sam left Williamsburg nine months ago after his marriage fell apart and and a bad split with his brother. He lost both the love of his life and his closest family member within the span of a few days leaving him devastated and without direction. In Williamsburg, Sam operated an AirBnb living in one of the rooms and renting the others. Nobodies would come in and out of his home, even as the people that meant the most had left permanently. It was this sensation that compelled him to leave. After losing the people you are closest to, nothing hurts as much as being surrounded by strangers that mean nothing to you.
