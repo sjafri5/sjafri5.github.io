@@ -8,7 +8,7 @@ categories: posts
 
 ——
 
-There's a type of tree in Del Ray, Florida called the Australian Pine. Meg was telling me about them. They've been banned in the city everywhere except for a small patch. The reason they've been banned is that they produce kernals that are incredibly painful if you step on them. Despite their beauty, they have been relegated to a small patch where the reach far into the sky.
+There's a type of tree in Del Ray, Florida called the Australian Pine. Meg was telling me about them. They've been banned in the city everywhere except for a small patch. The reason they've been banned is that they produce kernals that are incredibly painful if you step on them. Despite their beauty, they have been relegated to a small patch where they reach far into the sky.
 
 I picked up meagan from the airport. I had arrived back to Chicago while she was away, so I got to spend time in my old home just myself and the dogs. It was odd being back. It felt like more of a home than anywhere else. And yet, it too was not my home. There were remnants of my past littered throughout the beautiful space. The vaulted ceilings and prolific plants dressed the place with a deep sense of familiarity. The white sheets were perfectly made as if I had arrived at a hotel. On on that manicured bed laid my dogs staring at me with disbelief and anticipation. Meg had moved my clothes up into the loft which was now partially her art studio but mostly just a storage unit.
 
