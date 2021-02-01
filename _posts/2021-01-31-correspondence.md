@@ -1,6 +1,6 @@
 ---
 layout: post
-title: A Correspondence
+title: Correspondence
 cover: cover.jpg
 date:   2021-01-24 12:00:00
 categories: posts
